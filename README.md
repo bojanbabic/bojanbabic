@@ -12,6 +12,8 @@ I'm quite approachable and you're most welcome to engage with me on:
 *  [LinkedIn](https://www.linkedin.com/in/bojanbabic/)
 *  [Twitter](https://twitter.com/bojanbabic)
 
+Every once in a while I blog on [Medium](https://medium.com/@bojanbabic)
+
 ⚡ Keep on rockin’ it out there and hope to catch ya soon! ⚡
 
 <!--
